@@ -1,4 +1,4 @@
-# 
+# Open Source sushiswap trading bot extensions pour Mac OS | Sécurisé sushiswap trading bot extensions pour PC Windows. Avec audits de sécurité et gestion des clés privées — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
